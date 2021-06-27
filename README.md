@@ -17,5 +17,5 @@ Aqui vai algumas fotos do app:
 ![Screenshot_20210627-190748](Screenshot_20210627-190748.png)
 ![Screenshot_20210627-190734](Screenshot_20210627-190734.png)
 
-# Ele precisa de alguns ajustes e se você puder me dar algumas dicas e sujestões entre em contato comigo.😁
+# Ela precisa de alguns ajustes e se você puder me dar algumas dicas e sujestões entre em contato comigo.😁
 e-mail: ruth09@yahoo.com
